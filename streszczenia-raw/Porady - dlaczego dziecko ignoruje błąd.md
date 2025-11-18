@@ -12,7 +12,6 @@ Musisz także upewnić się, że dziecko jest w pełni skupione na Tobie. Może 
 
 Instrukcje muszą być krótkie. Mów dziecku, co *ma* robić, zamiast mówić, czego *nie* robić. Na przykład, zamiast "przestań to robić" lub "nie dotykaj tego", uzyskasz lepszą odpowiedź, mówiąc, co ma zrobić w zamian. Na przykład: "Proszę, odłóż to na półkę i wybierz jedną ze swoich innych zabawek" lub "Czas sprzątać, proszę włóż samochody z powrotem do pudełka".
 
-.
 
 Unikaj formułowania instrukcji jako pytań, ponieważ dziecko może uznać, że ma wybór i może powiedzieć "nie". Na przykład, zamiast "Chcesz pojechać samochodem?", powiedz "Czas wsiąść do samochodu".
 
@@ -25,5 +24,3 @@ Jeśli dziecko nie reaguje, być może nie zrozumiało, czego od niego oczekujes
 Jeśli dziecko nadal nie reaguje, nawet po modelowaniu, zatrzymaj się i wyjaśnij, jakie są konsekwencje niewykonania instrukcji. Na przykład, jeśli dziecko rzuca samochodem, mówisz: "Nie rzucamy samochodami, samochody jeżdżą po podłodze. Jeśli nie będziesz bawił się bezpiecznie, mama je zabierze". Jeśli nadal rzuca, działaj szybko i spokojnie: "Nie bawisz się bezpiecznie, więc samochody są zabierane". Następnie podnieś samochody i umieść je poza zasięgiem. W tym przypadku konsekwencją jest to, że zabawki znikają, ponieważ nie bawiło się nimi bezpiecznie.
 
 Jeśli jesteś w schemacie, w którym musisz krzyczeć, aby dziecko Cię posłuchało, i obecnie nie stosujesz konsekwencji, na początku będzie to trudne. Egzekwowanie konsekwencji prawdopodobnie doprowadzi do protestów i płaczu dziecka, ale kluczem jest konsekwencja i dotrzymywanie słowa. Dziecko musi wiedzieć, że jeśli coś mówisz, zrobisz to. Może to zająć trochę czasu, ale jeśli będziesz postępować zgodnie z tymi krokami i, co najważniejsze, będziesz konsekwentny, Twoje dziecko zacznie reagować za pierwszym razem, a Ty unikniesz konieczności uciekania się do krzyku.
-
-.

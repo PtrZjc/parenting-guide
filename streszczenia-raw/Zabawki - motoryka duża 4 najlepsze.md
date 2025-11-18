@@ -13,7 +13,6 @@ Pchacze są niezwykle wszechstronne i motywują dziecko na różnych etapach roz
 * **Pozycja klęcząca (High Kneeling):** Nachylona powierzchnia panelu aktywności (zamontowanego z powrotem na pchaczu) wspiera dziecko w osiągnięciu pozycji klęczącej (etap przed staniem), a zabawki utrzymują je w tej pozycji.
 * **Nauka chodzenia:** Gdy dziecko już stabilnie stoi przy meblach lub chodzi trzymane za ręce, pchacz zapewnia wsparcie, pozwalając mu na samodzielne stawianie kroków, co ostatecznie prowadzi do samodzielnego chodzenia.
 
-.
 
 **2. Mata edukacyjna (Baby Gym)**
 

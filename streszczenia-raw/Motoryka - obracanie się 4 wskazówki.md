@@ -35,7 +35,6 @@ Kluczowe jest tu umiejscowienie zabawki, ponieważ obrót zaczyna się od ruchu 
 
 ### 3. Dużo czasu na brzuszku (Tummy Time)
 Jest to kluczowe dla wszystkich umiejętności motoryki dużej (obracania się, siadania, chodzenia). Tummy time daje dziecku możliwość pracy nad kontrolą głowy i szyi, stabilnością barków oraz wzmacnia mięśnie pleców – wszystko to jest niezbędne do obrotu.
-.
 
 ### 4. Zabawa na plecach
 Zachęcaj do dużej ilości zabawy na plecach, najlepiej pod matą edukacyjną (play gym).

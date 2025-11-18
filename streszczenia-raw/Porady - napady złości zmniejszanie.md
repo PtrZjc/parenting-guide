@@ -20,5 +20,3 @@ Czasami łatwo jest poczekać na taką naturalną przerwę. Innym razem, ze wzgl
 Ważne jest, aby pamiętać, że chociaż te metody pomogą zredukować liczbę napadów złości, to naturalne jest, że dziecko może być rozczarowane koniecznością przerwania zabawy i nadal może mieć chwilowy kryzys. W takich sytuacjach kluczowe jest, aby uznać jego uczucia, ale jednocześnie być konsekwentnym i zakończyć aktywność. Jeśli ulegniesz i dasz "jeszcze jeden zjazd" lub "jeszcze jedną bajkę" *po* tym, jak dziecko wpadło w złość, możesz niechcący nauczyć je, że złość jest skutecznym narzędziem.
 
 Jeśli dziecko się zdenerwuje, zachowaj spokój, kucnij do jego poziomu i powiedz, że widzisz jego zdenerwowanie, ale nie może być kolejnej tury i czas na następną czynność. Używając przykładu zjeżdżalni: "Widzę, że jesteś smutny, bo nie możesz zjechać jeszcze raz. Trudno jest opuścić plac zabaw, ale czas iść do domu". Następnie pomóż dziecku opuścić plac zabaw. Może to zająć trochę czasu, ale jeśli konsekwentnie będziesz kończyć aktywność, gdy powiesz, że nadszedł czas, dziecko zrozumie, że mówisz poważnie, a liczba napadów złości znacznie spadnie.
-
-.

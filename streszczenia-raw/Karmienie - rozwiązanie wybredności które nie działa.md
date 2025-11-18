@@ -20,5 +20,3 @@ Ukrywanie warzyw nie działa na zasadzie, że dziecko z czasem polubi ich smak. 
     * **Nieformalny czas posiłku:** Stwórz luźną atmosferę i daj dziecku możliwość eksploracji warzywa: patrzenia, szturchania, miażdżenia palcami, wąchania, a nawet lizania. Należy podążać za dzieckiem – patrzenie i wąchanie to już postęp, dotykanie jest lepsze, a ugryzienie – wspaniałe.
     * **Bez presji:** Zrób z tego doświadczenie sensoryczne i usuń całkowicie presję jedzenia warzywa.
     * **Powtarzalność:** Ciągle oferuj to warzywo w kolejnych posiłkach. Im częściej je widzi, tym bardziej staje się znajome, co zwiększa szansę, że w końcu spróbuje.
-
-.

@@ -24,4 +24,3 @@ Kluczem do wydłużenia drzemek jest zastosowanie pauzy. Zamiast natychmiast wbi
 * **Biały szum.** Jeśli wchodzisz do pokoju, upewnij się, że włączony jest biały szum, który zamaskuje odgłosy Twoich kroków (dzieci w fazie REM łatwo reagują na hałas).
 
 Daj sobie kilka minut na ocenę sytuacji. Jeśli dziecko zaczyna płakać i staje się coraz bardziej niespokojne – wtedy oczywiście interweniuj. Często jednak zauważysz, że ruchy zwalniają, dźwięki cichną, a dziecko zapada z powrotem w głębszy sen. To proste działanie pozwala dziecku łączyć cykle snu i spać dłużej.
-.

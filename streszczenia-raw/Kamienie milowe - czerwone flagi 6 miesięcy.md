@@ -33,5 +33,3 @@ Zauważenie tych flag nie oznacza automatycznie problemu, ale jest wskazaniem do
 * **Słaba kontrola głowy:**
     * W leżeniu na brzuchu (tummy time): Dziecko nie potrafi podnieść głowy i nie zaczyna odpychać się od podłoża na wyprostowanych rękach.
     * W pozycji siedzącej (z podparciem np. wokół klatki piersiowej): Dziecko nie potrafi utrzymać głowy prosto i rozglądać się.
-
-.

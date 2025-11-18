@@ -25,5 +25,3 @@ Oto konkretne sytuacje, w których można zastosować pauzę, aby zachęcić dzi
     * Podawaj ulubione jedzenie po jednym kawałku. Po zjedzeniu poczekaj, aż dziecko poprosi o więcej (np. uderzając w stół, patrząc na ciebie).
 * **Wybór między dwoma przedmiotami:** Trzymaj dwa przedmioty (np. dwie zabawki) i poczekaj, aż dziecko wskaże lub sięgnie po ten, który chce.
 * **Inicjowanie rozmowy:** Gdy dziecko obserwuje coś ciekawego (np. psa), nie komentuj tego od razu ("O, pies!"). Zbliż się, spójrz na dziecko i poczekaj, aż ono pierwsze zwróci twoją uwagę na obiekt (spojrzeniem lub gestem). Dopiero wtedy potwierdź i nazwij to, co widzi.
-
-.

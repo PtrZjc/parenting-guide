@@ -16,7 +16,6 @@ Przy braku bezpiecznej więzi obserwuje się dwie skrajności:
 Dziecko z bezpieczną więzią na powrót rodzica reaguje pozytywnie – biegnie z ekscytacją, uśmiecha się lub po chwili przerywa zabawę, by podejść i się przytulić.
 Jeśli natomiast dziecko regularnie ignoruje powrót rodzica, nie zauważa go lub wydaje się zirytowane jego obecnością, może to sygnalizować brak bezpiecznej więzi.
 
-.
 
 **4. Traktowanie obcych tak samo (lub lepiej) jak rodzica**
 Dziecko z bezpieczną więzią wyraźnie preferuje rodzica nad obce osoby. W obecności nieznajomych może być nieśmiałe, chować się za nogami rodzica lub sprawdzać jego reakcję, nim nawiąże kontakt. Używa rodzica jako "bezpiecznej osoby".

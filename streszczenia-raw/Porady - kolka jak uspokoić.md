@@ -37,7 +37,6 @@ Prosty akt skupienia uwagi dziecka na czymś innym może pomóc mu wyrwać się 
 * **Spacer w wózku na zewnątrz:** Ruch wózka oraz dźwięki i widoki natury mogą rozproszyć dziecko.
 * **Bujaczek lub huśtawka dla niemowląt:** Zapewnia dziecku świeżą perspektywę i zmianę scenerii. Delikatny ruch kołysania jest podobny do tego, co czuło w łonie matki. Wiele bujaczków jest wyposażonych we wbudowane zabawki lub funkcje muzyczne, które mogą pomóc w rozrywce.
 
-.
 
 **6. Trzymanie (Holding)**
 Jest to najskuteczniejsza strategia, ponieważ zasadniczo tworzy środowisko podobne do tego, którego dziecko doświadczało w łonie matki:

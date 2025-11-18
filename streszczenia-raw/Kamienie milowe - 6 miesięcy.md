@@ -1,5 +1,3 @@
-[[bubulinek]] [[parenting]]
-
 [6 Month Developmental Milestones - What to Expect at 6 Months of Age](http://www.youtube.com/watch?v=4otE7HxWKJg)
 
 Autorka, Emma, jest pediatrycznym terapeutą zajęciowym (pediatric occupational therapist) z 10-letnim doświadczeniem.

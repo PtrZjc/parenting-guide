@@ -55,7 +55,6 @@ Skupiasz się na działaniach, wysiłku i procesie myślowym – rzeczach, nad k
 
 Jeśli zdarzy ci się powiedzieć "Dobra robota, jesteś taki mądry" (co zdarza się każdemu), nie panikuj. Po prostu dodaj coś konkretnego zaraz potem, np. "Ćwiczyłeś tę piosenkę w kółko, aż ci wyszła" lub "Naprawdę przemyślałeś każdy krok tego problemu".
 
-.
 
 ### 4. Uznawaj uczucia, jednocześnie stawiając granice
 

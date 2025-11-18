@@ -25,7 +25,6 @@ Muszą być wystarczająco małe, aby wymagać precyzyjnego chwytania, ale nie t
 
 Około 9. miesiąca życia dziecko będzie używać chwytu trójpalcowego (kciuk, wskazujący, środkowy). Będą obracać klocki w dłoniach, przekładać z ręki do ręki, uderzać nimi o siebie i upuszczać. Bliżej pierwszych urodzin zaczną używać chwytu pęsetowego do podnoszenia klocków. Rozwiną też umiejętność precyzyjnego upuszczania, co pozwoli im zbudować wieżę z dwóch klocków.
 
-.
 
 **4. Książeczki kartonowe (Board Books)**
 Mają grube strony, które się nie rwą i są łatwe do chwytania. Czasami przewracanie stron może być jeszcze trudne. Prostym trikiem jest umieszczenie gumek do włosów między stronami. To utrzymuje je lekko oddzielone, ułatwiając dziecku chwytanie i przewracanie. Samo przewracanie stron daje dziecku szansę na ćwiczenie i udoskonalanie chwytu pęsetowego. Wiele z tych książek ma elementy interaktywne, takie jak klapki do podnoszenia czy tekstury do dotykania, co pomaga ćwiczyć różnorodne chwyty.

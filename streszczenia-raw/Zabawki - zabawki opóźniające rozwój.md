@@ -53,5 +53,3 @@ Zabawki na kółkach, które pozwalają dziecku przemieszczać się, zanim potra
 
 **Alternatywa**
 Jeśli celem jest pomoc w nauce chodzenia, zalecaną alternatywą jest "pchacz" (baby push walker), który wspiera naukę w zupełnie inny, bezpieczny sposób.
-
-.

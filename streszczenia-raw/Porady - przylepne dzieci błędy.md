@@ -21,7 +21,6 @@ Dlaczego? Kiedy twoja pochwała koncentruje się na tym, jakie dziecko jest mąd
 
 Rozwiązanie: Chwal wysiłek i proces, a nie rezultat. Na przykład: "Wow, nie poddałeś się, nawet gdy ten kawałek układanki był trudny" lub "Widziałem, jak bardzo koncentrowałeś się na tym rysunku". Pokazujesz w ten sposób, że próbowanie i rozwiązywanie problemów jest tym, co naprawdę się liczy, a nie bycie idealnym czy uzyskanie twojej aprobaty.
 
-.
 
 **Błąd 3: Środowisko fizyczne, które nie jest "przestrzenią 'tak'"**
 

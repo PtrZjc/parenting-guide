@@ -32,7 +32,6 @@ Istnieją dwie metody praktykowania dynamicznego siadu:
 * **Metoda 2: Motywacja zabawką**
     Usiądź na podłodze z wyprostowanymi nogami i umieść dziecko między nimi. Delikatnie wspieraj je, kładąc dłonie na jego biodrach. Trzymaj zabawkę przed dzieckiem lub połóż ją tuż poza jego zasięgiem na ziemi. Zachęć malucha, aby pochylił się do przodu i podniósł zabawkę. Gdy dziecko chwyci zabawkę, naturalnie spróbuje wrócić do pozycji siedzącej. W zależności od siły, może być w stanie zrobić to samodzielnie lub będzie potrzebować Twojej pomocy. W razie potrzeby delikatnie popchnij biodro po przeciwnej stronie do kierunku pochylenia, aby poprowadzić je z powrotem do siadu.
 
-.
 
 **Krok 4: Przejście do samodzielnego siedzenia**
 

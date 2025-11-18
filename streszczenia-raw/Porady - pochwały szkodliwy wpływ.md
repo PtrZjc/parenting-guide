@@ -34,6 +34,5 @@ Powinniśmy chwalić, ale należy skupić się na konkretach i rzeczach, które 
 
 Taki rodzaj zachęty sprawia, że dzieci stają się na tyle odważne, by próbować nowych rzeczy, wiedząc, że pomyłki są częścią procesu uczenia się, a nie dowodem na to, że nie są zdolne. Uczą się, że należy po prostu próbować dalej, a w końcu się uda. Pomaga to budować ich pewność siebie i odporność (rezyliencję).
 
-.
 
 Jako rodzice mamy również istotną rolę w pomaganiu dzieciom w radzeniu sobie z dużymi emocjami, szczególnie tymi, które często prowadzą do ataków złości i histerii. .

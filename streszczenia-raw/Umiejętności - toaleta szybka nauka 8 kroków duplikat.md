@@ -33,4 +33,3 @@ Zawsze przebieraj dziecko po wypadku w łazience, a nie w sypialni czy salonie. 
 
 **8. Komfort fizyczny**
 Dziecko musi czuć się bezpiecznie i stabilnie na toalecie, aby móc rozluźnić mięśnie. Nogi nie mogą wisieć w powietrzu – kolana powinny być wyżej niż biodra, co ułatwia wypróżnianie. Warto zaopatrzyć się w odpowiednie akcesoria (autorka odsyła do listy niezbędników w opisie, np. nakładka, podnóżek).
-.

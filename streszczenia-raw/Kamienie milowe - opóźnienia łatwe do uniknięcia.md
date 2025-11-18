@@ -15,5 +15,3 @@ Istnieje również przekonanie, że dziecko nie powinno płakać ani marudzić p
 Jednak dziecko nie "nienawidzi" czasu na brzuchu. Ono komunikuje, że ta pozycja jest dla niego dziwna, ponieważ większość czasu (zarówno snu, jak i czuwania) spędza na plecach – na podłodze, w łóżeczku czy na rękach. Co ważniejsze, dziecko informuje, że ta pozycja jest dla niego wyzwaniem. Leżąc na brzuchu, dziecko rozciąga mięśnie z przodu ciała (które zwykle są w pozycji zgiętej) oraz musi aktywować mięśnie karku, pleców i ramion, aby podnieść głowę. Jest to trudne i męczące. Dodatkowo, nie mogąc podnieść głowy, jego pole widzenia jest ograniczone. Te czynniki prowadzą do wyrażania frustracji przez noworodka.
 
 Dobrą wiadomością jest to, że czas na brzuchu nie musi być walką. Można go znacznie ułatwić. .
-
-.

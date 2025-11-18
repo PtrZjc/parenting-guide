@@ -17,7 +17,6 @@ Zalecenia Red Nose Australia i Amerykańskiej Akademii Pediatrii:
 * Po zakończeniu podróży należy wyjąć dziecko z fotelika, nawet jeśli śpi.
 * Nie zaleca się używania nosidełek wpinanych w wózki na długie spacery, ze względu na utrzymywanie dziecka w pozycji półleżącej.
 
-.
 
 **2. Bujaczki, huśtawki i leżaczki (Bouncers, Rockers, Swings, Gliders)**
 

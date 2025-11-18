@@ -35,5 +35,3 @@ Wypadki są częścią procesu. Reakcja rodzica jest kluczowa.
 * **Zachowaj spokój:** Krzyczenie, karcenie lub okazywanie rozczarowania zwiększa stres, może powodować lęk przed toaletą lub ukrywanie się.
 * **Neutralny komunikat:** Powiedz spokojnie: "Widzę, że zdarzył się wypadek, masz mokre spodnie. Chodźmy do toalety się przebrać".
 * **Przebieranie w łazience:** Zawsze przebieraj dziecko w łazience, a nie w salonie. To okazja do przećwiczenia całego procesu: opuszczenie spodni, siadanie na toaletę (dokończenie), wycieranie, podciąganie spodni, mycie rąk.
-
-.

@@ -28,5 +28,3 @@
 
 * **Prawidłowa pozycja:** Dziecko musi siedzieć stabilnie i wygodnie.
 * **Podparcie stóp:** Nogi nie mogą zwisać. Krzesełka dla 6-miesięcznych dzieci są często za duże. Użyj zwiniętych ręczników, aby wypełnić luki i zapewnij podnóżek, na którym dziecko faktycznie może oprzeć stopy. Brak stabilności powoduje wiercenie się i rozproszenie.
-
-.

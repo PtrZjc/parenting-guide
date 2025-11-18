@@ -51,5 +51,3 @@ W wieku 12 miesięcy dziecko może mówić pierwsze słowa, ale zdecydowanie pow
 
 * **Przykład typowego zachowania:** Kiedy rodzic mówi do dziecka i przestaje, ono zaczyna "odpowiadać" gaworzeniem, naśladując prawdziwą rozmowę. Intonacja gaworzenia zmienia się (wzrasta i opada), zamiast być monotonna (np. "gagaga").
 * **Sygnał ostrzegawczy:** Dziecko nie gaworzy lub wydawane przez nie dźwięki nie brzmią jak próba rozmowy.
-
-.

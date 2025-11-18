@@ -48,6 +48,5 @@ Należy za wszelką cenę unikać **skoczków** (Jolly Jumper / Baby Jumper).
 * Są one powiązane ze zwiększonym ryzykiem urazów.
 * Są również powiązane z ryzykiem opóźnień rozwojowych.
 
-.
 
 
