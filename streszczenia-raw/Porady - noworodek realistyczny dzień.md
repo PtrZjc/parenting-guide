@@ -1,0 +1,56 @@
+[Realistic Day in the Life With a Newborn Baby](http://www.youtube.com/watch?v=GdP-1bwuu94)
+
+Jestem pediatryczną terapeutką zajęciową i pomogłam tysiącom rodziców. Dziś pokażę wam, jak naprawdę wygląda 24 godziny z moim 3-tygodniowym noworodkiem – każde karmienie, każdą drzemkę, a nawet chwile w środku nocy. Podzielę się także strategiami, których używam, aby wasze dni również mogły być spokojniejsze.
+
+Zaczynamy o 6:45, kiedy starsze rodzeństwo wpada do naszej sypialni. Po porannym strachu schodzę na dół, aby przygotować im śniadanie i ubrać ich, podczas gdy nasza mała jeszcze śpi. Obecnie budzi się naturalnie około 8:00, co jest idealne, ponieważ daje mi czas na zajęcie się najpierw starszymi dziećmi.
+
+Wiem jednak, że to nie potrwa wiecznie. Wzorce snu noworodków ciągle się zmieniają. Kiedy będzie miała około 6 tygodni, zacznę ją budzić o 7:30 rano, nawet jeśli będzie jeszcze spała. Może to brzmieć sprzecznie z intuicją, ale ustalenie stałej porannej pory pobudki jest jednym z najpotężniejszych sposobów na wspieranie dojrzewania jej wewnętrznego zegara biologicznego. Kiedy jej zegar biologiczny dojrzeje, wszystko inne układa się lepiej: lepsze drzemki, bardziej przewidywalne pory snu i dłuższe okresy snu w nocy. Na razie jednak pozwalam, by kierował nami jej naturalny rytm.
+
+O 8:00 słyszę, jak porusza się przez nianię elektroniczną. Schodzę na dół, przynoszę ją i natychmiast rozwijam. Ponieważ ostatnie karmienie miała o 3:30 w nocy, jest bardzo głodna. Zabieram ją prosto do salonu na poranne karmienie piersią, jednocześnie pilnując starszych dzieci. Po około 10 minutach karmienia zaczyna robić się senna. Zamiast pozwolić jej zasnąć, przerywam karmienie, zmieniam jej pieluchę i ubieram na cały dzień.
+
+Absolutnie nienawidzi zmiany pieluchy i ubrań, jak większość noworodków, ale wiem, że desperacko potrzebuje zmiany pieluchy. Co ważniejsze, wiem, że to ją obudzi, co oznacza, że zje pełny posiłek, zamiast tylko podjadać i chcieć jeść ponownie za godzinę. Zanim jednak dotknę pieluchy, zawsze przecieram jej brzuszek mokrą chusteczką i kilka razy poruszam przodem pieluchy. Robię to z dobrego powodu: wystawienie na powietrze często powoduje, że dzieci oddają mocz. Robiąc te dwie rzeczy, upewniam się, że jeśli zrobi siusiu, zostanie to w pieluszce, a nie wyląduje na mnie.
+
+Po zmianie pieluchy czas na drugą część karmienia. 10 minut później kończy i czas na poranne przytulanie z rodzeństwem. Całkowicie pomijam odbijanie. Odkryłam, że odbijanie lub jego brak nie robi różnicy w tym, jak spokojna jest. W rzeczywistości, po odbijaniu jest bardziej prawdopodobne, że uleje, a już i tak dużo ulewa, więc przestałam to robić.
+
+Rodzeństwo uwielbia te poranne przytulasy, ale dla 3-tygodniowego dziecka jest to trochę przytłaczające, więc utrzymuję je krótko. Kiedy ja próbuję ubrać syna, kładę ją na macie do zabawy. Robię to od pierwszego dnia z dwóch powodów. Po pierwsze, chciałam się upewnić, że czuje się komfortowo leżąc na różnych powierzchniach – podłodze, materacu, przewijaku – w zasadzie wszędzie poza moim ciałem. Chociaż uwielbiam nasze przytulanie, rzeczywistość jest taka, że nie mogę jej nosić cały dzień z powodu przewlekłej kontuzji pleców i dwójki innych dzieci do pilnowania.
+
+Co ważniejsze, jako pediatryczna terapeutka zajęciowa wiem, jak kluczowy jest czas na podłodze dla jej rozwoju. Obecnie jej zabawa polega na wpatrywaniu się w pokój, być może nawiązywaniu kontaktu wzrokowego z zabawką, obracaniu głowy w kierunku dźwięków oraz tych uroczych machaniach rączkami i kopnięciach nóżkami. To właśnie te drobne ruchy rozwijają jej umiejętności motoryki dużej, motoryki małej i zdolności wzrokowe.
+
+Chociaż czas na podłodze jest ważny, ona niekoniecznie go uwielbia. Jej tolerancja jest mniej więcej tak długa, jak uwaga jej brata na ubieraniu się, więc te sesje zabawy są krótkie. Po 10 minutach pod matą do zabawy zaczyna narzekać. Zmieniam scenerię i daję jej trochę czasu na przewijaku, gdzie zaczyna wpatrywać się w dal. To jej sygnał, że jest zmęczona. Otulam ją i kładę do wózka na pierwszą drzemkę, podczas gdy idziemy na plac zabaw.
+
+O 10:00 wracamy do domu, a ona wciąż śpi. Wyjmuję ją z wózka i kładę do gondoli, aby dokończyła drzemkę. Początkowo porusza się chwilę po położeniu, ale ponieważ nie płacze, stoję blisko, ale poza zasięgiem jej wzroku i po prostu obserwuję, dając jej szansę na ponowne zaśnięcie, co też robi.
+
+O 10:42 budzi się z pierwszej drzemki i jest bardzo głodna. Czas na drugie karmienie piersią, gdzie stosuję mój zwykły wzorzec przerywania w połowie karmienia na zmianę pieluchy, aby utrzymać ją przytomną. Oczywiście, w połowie zmiany pieluchy mocno ulewa, więc czas na szybką zmianę stroju. Ponieważ moja córeczka dużo ulewa, stałam się bardzo wybredna co do ubrań. Mam obsesję na punkcie pajacyków z dwukierunkowymi zamkami błyskawicznymi, a nie na zatrzaski, ponieważ są o wiele szybsze. Kiedy jest za ciepło na pajacyk, zawsze wybieram koszulki z kopertowymi ramionami (zachodzący na siebie materiał na ramionach). Ten mały detal pozwala mi ściągnąć koszulkę w dół przez ciało, zamiast w górę przez głowę, co oznacza, że ulanie nie rozmazuje się we włosach ani na całej twarzy.
+
+Inną rzeczą, którą zawsze mam w zasięgu ręki przy zmianie pieluchy, jest smoczek. Jak wspomniałam, nienawidzi zmiany pieluchy lub ubrań. Kiedy zaczyna płakać, robi się to stresujące i głośne, zwłaszcza przy dwójce innych dzieci. Aby ją uspokoić, zawsze wkładam smoczek w momencie, gdy zaczyna protestować.
+
+Po niezbyt szybkiej zmianie pieluchy i ubrania wracamy do karmienia. 10 minut później kończy i jest gotowa do zabawy. Ta zabawa zaczyna się od rozmowy, gdy leży na moich kolanach. To jedna z moich ulubionych części dnia. Po naszej małej rozmowie wraca pod matę do zabawy na kolejny czas na podłodze. Już po 5 minutach zabawy zaczyna pokazywać mi te nieomylne oznaki zmęczenia. Otulam ją i kładę do gondoli na drugą drzemkę.
+
+Nigdy nie wiem, jak długo będzie spała. Jej sen jest napędzany głównie przez presję snu. Będzie spała, dopóki nie przestanie być zmęczona, nie zgłodnieje lub nie poczuje się niekomfortowo. Może to być od 20 minut do kilku godzin. .
+
+Chociaż drzemki mojej córeczki są nieprzewidywalne, robię wszystko, co mogę, aby promować dłuższe okresy snu. Kiedy jesteśmy w domu, zawsze śpi w gondoli w naszej sypialni. Utrzymuję pokój ciemny i chłodny, z włączonym białym szumem, aby zamaskować chaos wywoływany przez rodzeństwo. Niektórzy martwią się, że stworzenie idealnego środowiska do snu oznacza, że nigdy nie zaśnie gdzie indziej, ale uwierzcie mi, gdy dzieci są wystarczająco zmęczone, zasną wszędzie.
+
+Ta konkretna drzemka była wygraną – dała mi solidną godzinę i pół. Obudziła się o 13:00 i oczywiście znów jest głodna. Czas na trzecie karmienie piersią. Robię moją zwykłą przerwę w połowie karmienia, aby zmienić jej pieluchę i trochę ją obudzić. Jednak podczas tego karmienia zasypia. W ciągu pierwszych dwóch tygodni była to norma. Przez ostatnie kilka dni zaczęła pozostawać dłużej obudzona po karmieniach, ale nie zdarza się to za każdym razem. Kiedy zasnęła w połowie karmienia, po prostu ją otuliłam i odłożyłam z powrotem do gondoli.
+
+Po 45-minutowej drzemce budzi się ponownie. Tym razem miała "eksplozję" w pieluszce podczas snu. Szybko zmieniam jej pieluchę i zakładam kolejne ubranko. Ponieważ karmiłam ją o 13:00, a jest dopiero 14:15, nie jest jeszcze głodna. Pomijam karmienie i kładę ją prosto na matę do zabawy. Niespodziewanie bawi się tam szczęśliwie przez 15 minut.
+
+Ponieważ wywieszanie prania zajmuje mi dużo czasu, a ona miała już sporo czasu na podłodze, wkładam ją do leżaczka (bouncer). Leżaczek jest genialny na te momenty, kiedy zaczyna marudzić po zabawie na podłodze, a ja potrzebuję wolnych rąk. Chcę jednak zaznaczyć, że jestem ostrożna, aby nie nadużywać leżaczka. Zbyt dużo czasu w leżaczkach, huśtawkach czy bujakach może hamować rozwój motoryki dużej. Zawsze ograniczam jej czas w nim i upewniam się, że ma dużo czasu na podłodze. Nigdy też nie pozwalam jej spać w leżaczku ze względu na ryzyko uduszenia pozycyjnego.
+
+Po rozwieszeniu ubrań zaczyna pokazywać mi sygnały głodu. Karmię ją, zmieniam pieluchę, aby ją obudzić, i kontynuuję karmienie. Tak jak poprzednio, zasypia podczas karmienia, mimo hałasu. Kładę ją na czwartą drzemkę.
+
+Po kolejnej 45-minutowej drzemce budzi się o 16:00. Ponieważ karmiłam ją 45 minut temu, nie jest głodna. Przechodzimy prosto do zabawy, zaczynając od czasu na brzuszku na mojej klatce piersiowej. Czas na brzuszku to kolejna pozycja, za którą nie przepada, ponieważ jest to ciężka praca dla jej małych mięśni. Ale jest to niezwykle ważna aktywność dla noworodków. Ponieważ jest to dla niej wyzwanie, ułatwiam jej to, robiąc czas na brzuszku "klatka do klatki", podczas gdy jestem półleżąco na kanapie. Po 2 minutach czasu na brzuszku ma dość, co jest całkiem dobrym wynikiem dla 3-tygodniowego dziecka.
+
+O 17:00 wracają oznaki zmęczenia. Czas na piątą drzemkę. Kiedy śpi, gotuję obiad i udaje mi się go zjeść, póki jest jeszcze ciepły. O 18:30 budzi się ponownie, całkowicie wygłodniała, ponieważ minęły 3 godziny od ostatniego karmienia. Karmię ją, podczas gdy tata przygotowuje starsze dzieci do snu. Gdy tylko kończy ich wieczorną rutynę, nasza mała wymiotuje na mnie. Tata przejmuje opiekę nad dzieckiem, a ja biegnę na górę się przebrać.
+
+Kiedy jestem gotowa, czas na kąpiel. Aby zminimalizować ryzyko, że będzie płakać podczas kąpieli, przygotowuję wszystko, zanim ją rozbiorę. Napełniam wanienkę, upewniając się, że temperatura wody wynosi 38°C (100°F), i zbieram wszystkie niezbędne rzeczy: dwie myjki, dwa ręczniki, dwie czyste pieluchy, chusteczki, krem, dwie zmiany ubrań i mydło w butelce z pompką.
+
+Nasza córka nienawidziła kąpieli, kiedy zaczynaliśmy. Krzyczała od początku do końca. Odkryliśmy, że kiedy kładziemy jej na klatce piersiowej ciepłą, mokrą myjkę, łzy ustają. Więc robimy to przy każdej kąpieli i teraz faktycznie to lubi. Po 15-minutowej kąpieli czas ją wyjąć, osuszyć i ubrać do zabawy z tatą.
+
+Podczas gdy oni się bawią, przygotowuję wszystko, czego mogę potrzebować do nocnych karmień. Ostatnią rzeczą, jakiej chcę, to skradać się na dół po ciemku. Mój zestaw przetrwania na noc zawiera dodatkowe pieluchy, chusteczki, krem, jednorazowy podkład do przewijania, wodoodporny ochraniacz na materac, czyste prześcieradło, zapasowy otulacz i zapasowe ubrania.
+
+O 19:30 czas na ostatnie karmienie dnia. To zazwyczaj trwa dłużej, od 20 do 30 minut. Tego wieczoru pozostaje obudzona, więc kończę jej wieczorną rutynę i kładę ją do gondoli o 20:00 na noc. Początkowo zasypia, ale potem zaczyna się poruszać zaledwie 90 sekund później. Ponieważ tylko się wierci, a nie płacze, zostaję blisko i daję jej przestrzeń na samodzielne uspokojenie się, co też robi.
+
+Od tego tygodnia budzi się dwa razy w nocy na karmienie. Dziś budzi się na pierwsze karmienie o 23:00. Wstaję, rozwijam ją, karmię, potem przerywam w połowie, aby zmienić pieluchę, ponownie ją otulam i kontynuuję karmienie. Zasypia podczas karmienia. Delikatnie odkładam ją z powrotem do gondoli. Oboje wracamy do łóżka o 23:20.
+
+Budzi się ponownie o 3:30 na drugie nocne karmienie, gdzie powtarzamy tę samą rutynę. Zasypia podczas karmienia, a ja odkładam ją z powrotem, gdzie śpi do 8:00 rano.
+

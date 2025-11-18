@@ -1,0 +1,20 @@
+[Knowing This Takes MONTHS Off Potty Training](http://www.youtube.com/watch?v=NLlAL35VTbY)
+
+Rozpoczynanie nauki korzystania z nocnika zbyt wcześnie może prowadzić do poważnych problemów, takich jak przewlekłe zaparcia, infekcje dróg moczowych i lęk przed toaletą. Jeśli dziecko nie jest gotowe, próby mogą trwać miesiącami lub latami bez sukcesu. Są trzy kluczowe rzeczy, na które należy zwrócić uwagę, zanim się zacznie.
+
+Po pierwsze, jeśli w świecie dziecka zachodzą znaczące zmiany, nie jest to dobry moment na rozpoczęcie nauki. Dotyczy to zarówno małych zmian, jak wakacje, zmiana grupy w żłobku czy nowa opiekunka, jak i dużych, np. pojawienie się rodzeństwa, przeprowadzka, separacja rodziców czy utrata członka rodziny. Małe dzieci czują się bezpiecznie, gdy wszystko jest znajome. Zmiany mogą sprawić, że poczują się zaniepokojone i cofną się w nauce, na przykład w treningu czystości. W takich okresach dziecko może stać się bardziej przylepne, niepewne lub preferować komfort i znajomość pieluch. To jego sposób na szukanie stabilności w świecie, który wydaje się bardziej nieprzewidywalny. Daj dziecku czas na adaptację do zmian i odzyskanie poczucia bezpieczeństwa, zanim zaczniesz naukę.
+
+Gdy życie dziecka jest stabilne, upewnij się, że jest ono gotowe rozwojowo. Oznacza to, że potrafi pozostać suche przez co najmniej 1 do 2 godzin bez przerwy. Jest to kluczowe, ponieważ odzwierciedla dwa ważne kamienie milowe.
+
+Po pierwsze, pęcherz dziecka urósł i jest w stanie pomieścić większą ilość moczu, napełniając się co 1-2 godziny. Dzieci zazwyczaj osiągają ten poziom pojemności pęcherza między 2. a 3. rokiem życia.
+
+Po drugie, co ważniejsze, sugeruje to, że dziecko zaczyna zdobywać kontrolę nad mięśniami pęcherza i jelit. Ta kontrola jest kluczowa dla nauki. W pierwszym roku życia dziecko nie ma kontroli; pęcherz opróżnia się automatycznie, gdy jest pełny. Między pierwszym a drugim rokiem życia kontrola jest nadal ograniczona, ale dziecko zaczyna zauważać uczucie pełnego pęcherza i łączyć je z potrzebą siusiania. To duży krok i wczesna oznaka gotowości. Między 2. a 4. rokiem życia dziecko zaczyna zdobywać kontrolę nad mięśniami pęcherza, zwieraczami i dnem miednicy. Może jednak opróżnić pęcherz tylko wtedy, gdy jest on całkowicie pełny, co u większości dzieci w wieku 2-3 lat dzieje się co 1-2 godziny. Jeśli Twoje dziecko potrafi pozostać suche przez taki czas, sugeruje to, że jest fizycznie gotowe. Jeśli nadal moczy pieluchę częściej, być może lepiej jest jeszcze trochę poczekać.
+
+Na koniec, upewnij się, że Twoje dziecko robi miękkie, uformowane kupy. Jeśli tak nie jest, może to wskazywać na zaparcia. W takim przypadku najlepiej jest opóźnić naukę korzystania z nocnika do czasu pomyślnego rozwiązania problemu z zaparciami.
+
+Zaparcia mogą być niezwykle bolesne. Jeśli dziecko doświadczy bólu podczas wypróżniania na nocniku, będzie niechętne do ponownych prób. Ta niechęć może prowadzić do wstrzymywania moczu i kału, a nawet do całkowitego unikania nocnika lub toalety. Taki opór może uczynić proces nauki znacznie trudniejszym.
+
+Ponadto, jeśli dziecko ma zaparcia, może to prowadzić do zmian fizycznych w jego ciele, które sprawiają, że nauka jest prawie niemożliwa. Gdy dziecko ma zaparcia, duża ilość twardego, zbitego stolca gromadzi się w jelicie, powodując jego rozciągnięcie. W wyniku tego rozciągnięcia zdolność jelita do kurczenia się i przesuwania stolca przez układ trawienny jest znacznie zmniejszona. Jelito staje się również mniej wrażliwe, co oznacza, że dziecko może nie czuć, kiedy faktycznie musi się wypróżnić. Dziecko może zacząć brudzić bieliznę, ponieważ płynny stolec przecieka wokół zbitego czopa. Rozciągnięte jelito może również prowadzić do przypadkowego moczenia się. Dzieje się tak, ponieważ zbity stolec uciska pęcherz, powodując, że albo nie napełnia się on tak bardzo, jak powinien, albo kurczy się w nieodpowiednich momentach. Dlatego ważne jest, aby zająć się wszelkimi zaparciami na długo przed rozpoczęciem nauki.
+
+Autorka wspomina o darmowym poradniku dotyczącym treningu czystości (search for: "free toilet training Essentials guide Emma Hubbard").
+

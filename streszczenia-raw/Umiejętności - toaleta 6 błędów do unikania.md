@@ -1,0 +1,22 @@
+[The Truth About Potty Training (6 Mistakes You Need to Avoid)](http://www.youtube.com/watch?v=h5fYNn33dTU)
+
+**Błąd 1: Zbyt częste zabieranie dziecka do toalety.**
+W wieku około 18 miesięcy do 2 lat pęcherz dziecka powiększa się, co pozwala mu na utrzymanie suchości przez około dwie godziny. Jeśli zabierasz dziecko do toalety co 30 minut, co godzinę lub co półtorej godziny, prosisz je o opróżnienie częściowo pełnego pęcherza. Dzieci w tym wieku nie mają tej umiejętności i nie będą jej miały jeszcze przez kilka lat. Zamiast tego, zabieraj dziecko do toalety tylko co dwie godziny. Warto ustawić alarm w telefonie, który będzie o tym przypominał.
+
+**Błąd 2: Zbyt długie przetrzymywanie dziecka na toalecie.**
+Dziecko powinno siedzieć na toalecie lub nocniku maksymalnie przez pięć minut. Nie chcemy, aby siedzenie na nocniku było postrzegane jako kara, co może się zdarzyć, jeśli zmuszamy je do siedzenia tam przez 10 czy 20 minut. Jeśli dziecko siedzi na nocniku przez długi czas, na przykład oglądając telewizję, nie skupia się na odczuciach płynących z ciała, które sygnalizują potrzebę oddania moczu lub kału. W takiej sytuacji jedynie "łapiemy" przypadkowy mocz lub kał, a dziecko nie pracuje nad ogólną umiejętnością.
+
+**Błąd 3: Pytanie dziecka "Czy chcesz iść do toalety?".**
+To podejście nie działa z dwóch powodów. Po pierwsze, dziecko jeszcze nie do końca wie, jakie to uczucie, gdy musi iść do toalety, więc zapytane, nie jest pewne odpowiedzi. Po drugie, jest to pytanie. Siedzenie na toalecie jest dla wielu dzieci nudne, wolą się bawić, więc ich odpowiedź często brzmi "nie". Zamiast tego, gdy widzisz oznaki, że dziecko musi iść do toalety (np. tańczy w miejscu, ściska nogi, trzyma się), powiedz: "Widzę, że mówisz mi, że musisz iść do toalety, bo robisz zabawny taniec. Czas na toaletę". Przeformułuj to na stwierdzenie "Czas na toaletę", co zasadniczo nie daje dziecku opcji odmowy.
+
+**Błąd 4: Prowadzenie nauki, gdy dziecko nadal nosi pieluchomajtki (pull-ups).**
+Aby dziecko skutecznie nauczyło się korzystać z toalety, musi wiedzieć, jakie to uczucie być mokrym. Niestety, pieluchomajtki typu pull-ups lub zwykłe pieluchy są zbyt dobre we wchłanianiu wilgoci. To sprawia, że dziecko nie odczuwa dyskomfortu i nie czuje mokrości. Jeśli chcesz ograniczyć bałagan, możesz rozważyć włożenie zwykłych majtek do pieluchy lub pieluchomajtek. Dzięki temu dziecko poczuje wilgoć, która następnie zostanie wchłonięta przez pieluchę. Jednak najlepszym podejściem jest użycie majtek treningowych lub przejście od razu na zwykłą bieliznę.
+
+**Błąd 5: Przesadna reakcja na wypadki.**
+Wypadki będą się zdarzać. Dziecko wciąż uczy się rozpoznawać sygnały płynące z ciała i nie potrafi jeszcze długo wstrzymywać moczu czy kału. Sposób, w jaki reagujesz na te wypadki, ma ogromny wpływ na powodzenie nauki. Jeśli krzyczysz, denerwujesz się lub dziecko wyczuwa, że nie jesteś zadowolony, może to prowadzić do strachu przed korzystaniem z toalety i zatrzymania postępów. Czasami może to nawet zwiększyć liczbę wypadków, ponieważ dziecko może postrzegać tę interakcję (nawet jeśli jest negatywna) jako formę uwagi. Kiedy zdarzy się wypadek, zachowaj spokój oraz neutralny wyraz twarzy, postawę i głos. Po prostu przejdź przez proces czyszczenia, najlepiej w łazience, i załóż dziecku nowe ubranie.
+
+**Błąd 6: Zbytnie naciskanie na robienie kupy na nocnik lub toaletę.**
+To bardzo powszechne, że dzieci chętnie korzystają z nocnika lub toalety przy sikaniu, ale odmawiają robienia w ten sposób kupy. Jest to coś, co musimy uszanować. Z czasem dziecko nabierze pewności siebie i będzie gotowe. Jeśli będziesz zmuszać dziecko do siedzenia na nocniku, aż zrobi kupę, może to doprowadzić do wstrzymywania kału, co prowadzi do zaparć, a następnie do przewlekłych zaparć. Tego należy unikać za wszelką cenę, ponieważ bardzo utrudnia to naukę.
+Zamiast tego, można zrobić dwie rzeczy:
+1.  **Daj alternatywę:** Jeśli dziecko nie jest gotowe, daj mu pieluchę. Powiedz, że może zrobić kupę w pielusze, ale musi to zrobić w łazience, tam gdzie jest toaleta. To sprawi, że dziecko oswoi się z tą przestrzenią jako miejscem do wypróżniania.
+2.  **Dostosuj toaletę lub nocnik:** Upewnij się, że sprzęt wspiera dziecko podczas siedzenia, aby ułatwić mu zrobienie kupy. Kluczowe jest zapewnienie podparcia dla stóp, tak aby kolana znajdowały się wyżej niż biodra. W przypadku korzystania z dużej toalety, warto zmienić rozmiar deski sedesowej (użyć nakładki).

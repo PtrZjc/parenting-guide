@@ -1,0 +1,24 @@
+[4Simple Habits That Make Parenting a Toddler MUCH Easier](http://www.youtube.com/watch?v=qSjPGuWtB7M)
+
+Życie z małym dzieckiem może być rollercoasterem. Są jednak rzeczy, które można zrobić, aby było ono łatwiejsze i mniej stresujące.
+
+Pierwsza strategia jest pomocna, jeśli ciągle mówisz dziecku "przestań", "nie dotykaj", "zostaw". Pragnienie dotykania i zabawy wszystkim jest sposobem, w jaki dziecko uczy się o świecie, co jest kluczowe dla jego rozwoju. Ciągłe mówienie "nie" jest frustrujące nie tylko dla rodzica, ale i dla dziecka. Rozwiązaniem jest zmiana otoczenia. Chcemy dostosować otoczenie do dziecka, a nie zmuszać dziecko do dopasowania się do nieodpowiedniego otoczenia.
+
+Stwórz "przestrzeń na tak" (yes space). Jest to bezpieczny obszar, w którym dziecko może swobodnie bawić się i eksplorować, bez konieczności ciągłego nadzoru. Może to wymagać zabezpieczenia pokoju poprzez usunięcie lub umieszczenie poza zasięgiem przedmiotów łamliwych lub niebezpiecznych, ustawienie bramek dla dzieci lub użycie kojca. Choć może być trudno schować cenne ramki na zdjęcia czy ulubione rośliny, jest to zmiana tymczasowa. Mózg dziecka szybko się rozwija i z czasem nauczy się zarządzać swoimi impulsami. W domu autorki jej roczne dziecko ma swobodny dostęp do parteru, który został odpowiednio zabezpieczony – nie ma tam ramek na zdjęcia ani łamliwych przedmiotów w zasięgu ręki. Piętro jest inne, tam trzymane są zdjęcia i ozdoby, ale dziecko nie ma tam swobodnego dostępu i spędza tam mniej czasu.
+
+Druga strategia wymaga zmiany sposobu komunikacji. Skup się na mówieniu dziecku, co ma robić, zamiast tego, czego ma nie robić. Małym dzieciom łatwiej jest zrozumieć, czego od nich oczekujesz, gdy mówisz im, co wolno robić, zamiast ciągle wskazywać, czego nie powinny. Na przykład, zamiast mówić "nie biegaj", powiedz "chodzimy po domu". Jest to dla dziecka jaśniejsze, usuwa zgadywanie i mówi wprost, co powinno robić. Taki sposób komunikacji nie tylko ułatwia dziecku przestrzeganie instrukcji, ale także zmniejsza jego frustrację związaną z ciągłym słyszeniem "nie" lub "przestań". Pomaga to również budować jego samoocenę, ponieważ nie czuje się ciągle, jakby robiło coś źle.
+
+Trzecia strategia pomoże utrzymać środowisko zabawy dziecka ekscytującym i stymulującym, co prowadzi do dłuższych, bardziej skupionych sesji zabawy. Polega na rotacji zabawek. Zamiast pozwalać dziecku bawić się wszystkimi zabawkami naraz, wybierz zestaw zabawek, a resztę schowaj w miejscu, którego dziecko nie widzi ani nie może dosięgnąć (np. w szafie, na wysokiej półce). Obserwuj dziecko pod kątem oznak znudzenia obecnymi zabawkami (np. bardziej szorstka zabawa, więcej narzekania). Gdy zauważysz te oznaki, dokonaj wymiany – wyjmij część schowanych zabawek, a schowaj te, którymi się ostatnio bawiło. Dzięki temu zabawki wydają się nowe za każdym razem, gdy wracają do rotacji.
+
+Czwarta strategia pomaga ułatwić dziecku przejścia między aktywnościami, które bywają dla niego trudne. Wymagają one dużej mocy obliczeniowej mózgu: dziecko musi przestać robić to, co robi, kontrolować chęć kontynuowania, zarządzać emocjami związanymi z przerwaniem i przenieść uwagę na następną rzecz. Dlatego ważne jest, aby z wyprzedzeniem informować dziecko o zmianie aktywności, co pomaga mu mentalnie się przygotować.
+
+Można to zrobić na kilka sposobów:
+
+1.  **Użyj naturalnej przerwy w aktywności.** Jest to pauza lub punkt końcowy w tym, co robi dziecko. Jeśli ogląda telewizję, końcem jest koniec programu. Jeśli je śniadanie, naturalną przerwą jest skończenie posiłku. Używanie naturalnych przerw sprawia, że dziecko jest bardziej skłonne do współpracy, ponieważ nie czuje, że mu przerywasz. Np. "Po zakończeniu bajki zjemy obiad". Gdy bajka się kończy, mówisz: "Bajka skończona, czas na obiad".
+2.  **Użyj czasu.** Małe dzieci nie rozumieją jeszcze tej koncepcji, więc trzeba im pokazać, jak wygląda czas. Świetne opcje to minutnik kuchenny, klepsydra lub timer w telefonie/tablecie. Timer w telefonie jest przydatny, ponieważ ma wizualne odliczanie i alarm. Ustaw timer w miejscu, gdzie dziecko może go zobaczyć i usłyszeć. Np. "Za 5 minut idziemy się kąpać". Ustaw timer, a gdy zadzwoni alarm, pomóż dziecku przejść do kąpieli.
+3.  **Odlicz liczbę powtórzeń.** To jasno mówi dziecku, kiedy aktywność się zakończy. Np. na placu zabaw, zamiast nagle mówić "idziemy", powiedz: "Możesz zjechać na zjeżdżalni jeszcze pięć razy, zanim pójdziemy do domu". Następnie odliczaj każdy zjazd: "jeszcze cztery", "trzy", "dwa", "ostatni raz". Po ostatnim zjeździe powiedz: "To był ostatni raz, teraz idziemy do domu".
+
+Pamiętaj, że uprzedzenie dziecka o zmianie aktywności ułatwi mu zrozumienie, co nastąpi, ale nie gwarantuje, że będzie z tego zadowolone. To normalne, że dziecko czuje rozczarowanie lub zdenerwowanie, gdy musi przestać robić coś, co lubi, i reaguje dużymi emocjami.
+
+).
+
