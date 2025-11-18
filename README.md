@@ -4,6 +4,8 @@ Streszczenia video z kanału YouTube [@EmmaHubbard](https://www.youtube.com/@Emm
 
 ## Jak używać
 
+Gotowe pdfy są w folderze `renders`, a poniżej instrukcja jak stworzyć od zera
+
 ### 1. Połączenie plików Markdown w jeden dokument
 
 Użyj skryptu `concatenate.sh` do połączenia wszystkich plików ze streszczeniami:
